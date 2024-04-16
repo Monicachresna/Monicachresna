@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Agribusiness 
 - 📫 How to reach me just dm me
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I like sushi
+- ⚡ Fun fact: I like sushi and Netherlands 
 
 <!---
 Monicachresna/Monicachresna is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
